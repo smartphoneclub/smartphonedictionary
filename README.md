@@ -1,5 +1,7 @@
 # smartphone dictionary
 
+smartphonedictionary.com
+
 __Cyberactive__ - hyperactive + digital; constant, frantic activity involving digital communication.
 
 __Depersonalization__ - a disorder where the person feels that he/she is not real, Stuck in a dream state, in another dimension, Feeling that they are going insane, feeling like a zombie or robot, losing track of time, and can't stop thinking of thoughts that bother them.
