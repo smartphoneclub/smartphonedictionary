@@ -18,6 +18,8 @@ __FOMO__ - (n) acronym for "fear of missing out".
 
 __Instagrammable__ - (v) a photo or a picture that is worth posting on Instagram.
 
+__JOMO__ - (n) acronym for the "joy of missing out".
+
 __Netflix binge__ - when a person watches a lot of shows on netflix in a row.
 
 __Phone sex__ - having sexover the phone by explaining what you're doing to the other person - like cybersex but on the phone.
