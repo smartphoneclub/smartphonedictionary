@@ -8,6 +8,8 @@ __Cell phone elbow__ - the onset of aching, burning, numbness, or tingling in th
 
 __Cyberactive__ - hyperactive + digital; constant, frantic activity involving digital communication.
 
+__Decision fatigue__ - as a person makes decisions throughout the day, the brain depletes its limited amount of mental stamina, and starts employing one of two shortcuts: Make a rash decision or avoid the act of deciding altogether. 
+
 __Depersonalization__ - a disorder where the person feels that he/she is not real, Stuck in a dream state, in another dimension, Feeling that they are going insane, feeling like a zombie or robot, losing track of time, and can't stop thinking of thoughts that bother them.
 
 __Digiphile__ - someone who prefers the digital world or digital things.
