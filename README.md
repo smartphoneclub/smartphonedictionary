@@ -2,6 +2,8 @@
 
 smartphonedictionary.com
 
+__Brain hacking__ - brain hacking refers to engineering our phones, apps and social media to hook us into spending more and more time on our smartphones.
+
 __Cell phone elbow__ - the onset of aching, burning, numbness, or tingling in the ulnar forearm and hand that comes from prolonged cell phone use. Cell phone elbow is known medically as "cubital tunnel syndrome".
 
 __Cyberactive__ - hyperactive + digital; constant, frantic activity involving digital communication.
